@@ -9,7 +9,7 @@ Meu nome é viviane
 ### você entrar em contato comigo;
 
 viviane.simao@escola.pr.gov.br
-sccp-corinthiana
+@sccp-corinthiana
 
 ![](https://media1.tenor.com/m/xlPBMRASMmkAAAAC/fiel-fiel-torcida.gif)
 
